@@ -6,7 +6,10 @@
 * https://filmora.wondershare.net/
 
 ### 필모라 12 배우기
-* https://youtu.be/YIUiMaUzv78
+- https://youtu.be/0-iI6iftRpM
+- https://youtu.be/f7XfSwEZgvo
+- https://www.youtube.com/@WondershareFilmoraKorea
+- https://youtu.be/YIUiMaUzv78
 ### 필모라 12 인공지능 편집 도구
 * https://youtu.be/AZAx9j4ecrc
 ### 필모라 12 크로마키
