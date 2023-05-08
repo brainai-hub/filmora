@@ -1,16 +1,15 @@
 # filmora
 
-## 필모라 12다운로드
-### 한글
+### 한글 필모라 12 다운로드
 * https://filmora.wondershare.kr/ 
-### 영문
+### 영문 필모라 12 다운로드
 * https://filmora.wondershare.net/
 
-### 필모라 배우기
+### 필모라 12 배우기
 * https://youtu.be/YIUiMaUzv78
-### AI 매핑 도구
+### 필모라 12 인공지능 편집 도구
 * https://youtu.be/AZAx9j4ecrc
-### 크로마키
+### 필모라 12 크로마키
 * https://youtu.be/1xrel1hac9o
 
 ### 무료 영상 다운로드 사이트
